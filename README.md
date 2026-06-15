@@ -46,6 +46,8 @@ Muhammed Ali Cüre
 
 
 
+<img width="1325" height="706" alt="Ekran Resmi 2026-06-15 03 26 59" src="https://github.com/user-attachments/assets/82f6a050-27cc-4e90-a0b8-23e12728fb75" />
+
 
 
 
