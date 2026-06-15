@@ -38,11 +38,9 @@ Muhammed Ali Cüre
 
 
 
-<img width="1325" height="706" alt="Ekran Resmi 2026-06-15 03 26 59" src="https://github.com/user-attachments/assets/82f6a050-27cc-4e90-a0b8-23e12728fb75" />
-
-
 
 <img width="1347" height="713" alt="Ekran Resmi 2026-06-15 03 25 50" src="https://github.com/user-attachments/assets/304bb963-eaa4-4ebd-99f9-0d965f2457ee" />
+
 
 
 
